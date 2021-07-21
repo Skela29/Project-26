@@ -1,0 +1,1 @@
+Good chocolate cakes can cure the world of unhappiness. Our no-fuss eggless recipe will guarantee that you will walk out of the kitchen with a sinfully moist chocolate cake that has a smooth fudgy chocolate icing. Do you really need any more reasons to make this? Resist the temptation to eat the whole thing on your own!
